@@ -6,7 +6,7 @@
 
 - 🤝🏻 I’m looking to collaborate on some project
 
-- 📫 How to reach me ? On [Discord](https://discord.com/channels/@me/1057382153211613294)
+- 📫 How to reach me ? On [Discord](https://discord.com/channels/@me/1383503081379069962)
 
 - 😄 Pronouns: Laval, LavalMC, LavalBS, TheLaval
 
