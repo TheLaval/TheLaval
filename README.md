@@ -8,7 +8,7 @@
 
 - 💚 You can support me on [Modrinth](https://modrinth.com/organization/lavalstudio) <3
 
-- 📫 How to reach me ? On [Discord](https://discord.com/channels/@me/1383503081379069962)
+- 📫 How to reach me ? On Discord (lavalmc)
 
 - 😄 Pronouns: Laval, TheLaval
 
