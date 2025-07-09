@@ -6,8 +6,10 @@
 
 - 🤝🏻 I’m looking to collaborate on some project
 
+- 💚 You can support me on [Modrinth](https://modrinth.com/organization/lavalstudio) <3
+
 - 📫 How to reach me ? On [Discord](https://discord.com/channels/@me/1383503081379069962)
 
-- 😄 Pronouns: Laval, LavalMC, LavalBS, TheLaval
+- 😄 Pronouns: Laval, TheLaval
 
 - 🇫🇷 Fun fact: I am French
